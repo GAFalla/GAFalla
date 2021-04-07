@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GAFalla
-- 👀 I a studying electrical engineering
+- 👀 I am studying electrical engineering
 - 🌱 I’m currently learning something hopefully
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me: Please don't
